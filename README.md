@@ -1,5 +1,10 @@
 # Awesome Trading
 
+Brokers
+---
+
+- https://www.xm.com/
+
 Trading Sites
 ---
 
