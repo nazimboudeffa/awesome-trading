@@ -1,4 +1,4 @@
-# Awesome Trading
+# Awesome Trade
 
 Brokers
 ---
