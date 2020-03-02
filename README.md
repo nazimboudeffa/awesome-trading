@@ -13,7 +13,7 @@ Trading Sites
 Charts
 ---
 
-- https://fr.tradingview.com/
+- https://fr.tradingview.com/ (you can also trade with some brokers)
 
 Links
 ---
