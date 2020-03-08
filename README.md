@@ -15,7 +15,12 @@ Charts
 
 - https://fr.tradingview.com/ (you can also trade with some brokers)
 
-Links
+Sites
 ---
 
 - https://www.investing.com/
+
+Blogs
+---
+
+- https://www.bulldude.com/
