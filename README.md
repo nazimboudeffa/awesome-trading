@@ -19,6 +19,7 @@ Sites
 ---
 
 - https://www.investing.com/
+- https://www.forexagone.com/ (Trading Range Technique)
 
 Blogs
 ---
