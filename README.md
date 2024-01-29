@@ -17,7 +17,7 @@ Sites
 - https://www.investing.com/
 - https://tradingeconomics.com/
 - https://fr.tradingview.com/ (you can also trade with some brokers)
-- whaletradingpro
+- whaletradingpro became alphamarkets on telegram
 - https://www.forexagone.com/ (Trading Range Technique)
 - https://www.bulldude.com/
 
