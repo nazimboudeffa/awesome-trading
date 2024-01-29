@@ -31,6 +31,6 @@ YouTube Channels
 TikTok Channels
 ---
 
-- https://www.tiktok.com/@tradingevolution
-- https://www.tiktok.com/@dz_volcatrading
-- https://www.tiktok.com/@easier_stock
+- https://www.tiktok.com/@tradingevolution FR/AR
+- https://www.tiktok.com/@dz_volcatrading AR
+- https://www.tiktok.com/@easier_stock AR
