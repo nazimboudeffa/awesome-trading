@@ -4,12 +4,11 @@ Brokers
 ---
 
 - https://www.etoro.com/
-- https://www.ironfx.com/
+- https://www.ironfx.com/ (broker)
 - https://www.xm.com/
 - kortana
 - ftmo
-- funding pips
-- my funding pips
+- https://fundingpips.com/ (firm)
 
 Sites
 ---
