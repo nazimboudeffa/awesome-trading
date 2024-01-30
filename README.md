@@ -14,13 +14,13 @@ Where to trade
 Influencers
 --
 
-##YouTube Channels
+## YouTube Channels
 
 - https://www.youtube.com/user/TKLTRADINGVIDEOS (Thami Kabbaj)
 - https://www.youtube.com/channel/UCIuhfiM34b2P8qv_HX_uwug (MQL5 Tutorials)
 - https://www.youtube.com/channel/UCaUsDJOHW-vMJ2E6fw-t5Mg (Technical Analysis)
 
-##TikTok Channels
+## TikTok Channels
 
 - https://www.tiktok.com/@tradingevolution FR/AR
 - https://www.tiktok.com/@dz_volcatrading AR
