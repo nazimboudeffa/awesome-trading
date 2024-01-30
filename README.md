@@ -1,6 +1,6 @@
 # Awesome Trading
 
-Brokers
+Where to trade
 ---
 
 - https://www.etoro.com/
