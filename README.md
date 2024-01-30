@@ -36,4 +36,4 @@ Liens à classer
 - https://www.bulldude.com/
 - https://www.sgbv.dz/ Bourse d'Alger
 - https://binance.com La crypto est interdite en Algérie, passible de prison
-- https://fr.everand.com/search?query=forex bouquins officiels que je lis
+- https://fr.everand.com/search?query=forex bouquins officiels à partager avec spliiit.com
