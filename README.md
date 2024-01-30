@@ -19,6 +19,7 @@ Sites
 - whaletradingpro became alphamarkets on telegram
 - https://www.forexagone.com/ (Trading Range Technique)
 - https://www.bulldude.com/
+- https://www.sgbv.dz/ Bourse d'Alger
 
 YouTube Channels
 ---
