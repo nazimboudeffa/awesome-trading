@@ -8,7 +8,8 @@ Brokers
 - https://www.xm.com/
 - kortana
 - ftmo
-- https://fundingpips.com/ (firm)
+- https://fundingpips.com/ (compte firm)
+- https://www.raisefx.com/ a blacklisté l'Algérie
 
 Sites
 ---
