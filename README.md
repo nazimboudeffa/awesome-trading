@@ -1,7 +1,7 @@
 # Awesome Trading
 
 Where to trade
----
+--
 
 - https://www.etoro.com/
 - https://www.ironfx.com/ (broker)
@@ -10,6 +10,9 @@ Where to trade
 - ftmo
 - https://fundingpips.com/ (compte firm)
 - https://www.raisefx.com/ a blacklisté l'Algérie
+
+Influencers
+--
 
 YouTube Channels
 ---
@@ -26,7 +29,7 @@ TikTok Channels
 - https://www.tiktok.com/@easier_stock AR
 
 Liens à classer
----
+--
 
 - https://www.investing.com/
 - https://tradingeconomics.com/
