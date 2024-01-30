@@ -10,6 +10,7 @@ Where to trade
 - ftmo
 - https://fundingpips.com/ (compte firm)
 - https://www.raisefx.com/ a blacklisté l'Algérie
+- https://www.vantagemarkets.com
 
 Influencers
 --
