@@ -11,17 +11,6 @@ Brokers
 - https://fundingpips.com/ (compte firm)
 - https://www.raisefx.com/ a blacklisté l'Algérie
 
-Sites
----
-
-- https://www.investing.com/
-- https://tradingeconomics.com/
-- https://fr.tradingview.com/ (you can also trade with some brokers)
-- whaletradingpro became alphamarkets on telegram
-- https://www.forexagone.com/ (Trading Range Technique)
-- https://www.bulldude.com/
-- https://www.sgbv.dz/ Bourse d'Alger
-
 YouTube Channels
 ---
 
@@ -35,3 +24,15 @@ TikTok Channels
 - https://www.tiktok.com/@tradingevolution FR/AR
 - https://www.tiktok.com/@dz_volcatrading AR
 - https://www.tiktok.com/@easier_stock AR
+
+Liens à classer
+---
+
+- https://www.investing.com/
+- https://tradingeconomics.com/
+- https://fr.tradingview.com/ (you can also trade with some brokers)
+- whaletradingpro became alphamarkets on telegram
+- https://www.forexagone.com/ (Trading Range Technique)
+- https://www.bulldude.com/
+- https://www.sgbv.dz/ Bourse d'Alger
+- https://binance.com La crypto est interdite en Algérie, passible de prison
