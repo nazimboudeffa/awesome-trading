@@ -5,7 +5,7 @@ Where to trade
 
 - https://www.etoro.com/
 - https://www.ironfx.com/ (broker)
-- https://www.xm.com/
+- https://www.xm.com/ (compte islamique?)
 - kortana
 - ftmo
 - https://fundingpips.com/ (compte firm)
