@@ -27,6 +27,11 @@ TikTok Channels
 - https://www.tiktok.com/@dz_volcatrading AR
 - https://www.tiktok.com/@easier_stock AR
 
+Telegram
+ 
+- https://t.me/+pDUvIGfAclszY2E0 GOLD
+- https://t.me/+2iOTSnOTJaRhN2Y5 GOLD
+
 Liens à classer
 --
 
