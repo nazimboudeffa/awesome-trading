@@ -47,5 +47,5 @@ Liens à classer
 Crypto
 ---
 
-- Doge community
+- Doge community (use a secondary official account)
 - Bot of the doge community
