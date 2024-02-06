@@ -50,5 +50,7 @@ Crypto
 
 ATTENTION : Illegal in Algeria
 
+I use https://www.binance.com and only shitcoins and spot no trading because of the volatility
+
 - Doge community (use a secondary official account to avoid spam)
 - Bot of the doge community, yes there is a bot affected to your account
