@@ -48,7 +48,7 @@ Liens à classer
 Crypto
 ---
 
-ATTENTION : Illegal in Algeria
+ATTENTION : Crypto is illegal in Algeria
 
 I use https://www.binance.com and only shitcoins and spot no trading future because of the volatility
 
