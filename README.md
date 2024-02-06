@@ -3,11 +3,12 @@
 Where to trade
 --
 
-- https://www.etoro.com/
-- https://www.ironfx.com/ (broker)
+- https://www.etoro.com/ check my linktree
+- https://www.ironfx.com/ (broker, if all goes well I'll add the affiliation, still a noob)
 - https://www.xm.com/ (compte islamique?)
-- kortana
-- ftmo
+- https://admiralmarkets.com
+- https://kortanafx.com prop firm validated by a community I am in
+- ftmo.com
 - https://fundingpips.com/ (compte firm)
 - https://www.raisefx.com/ a blacklisté l'Algérie
 - https://www.vantagemarkets.com
