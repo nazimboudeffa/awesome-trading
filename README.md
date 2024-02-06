@@ -8,7 +8,7 @@ Where to trade
 - https://www.xm.com/ (compte islamique?)
 - https://admiralmarkets.com
 - https://kortanafx.com prop firm validated by a community I am in
-- ftmo.com
+- https://ftmo.com
 - https://fundingpips.com/ (compte firm)
 - https://www.raisefx.com/ a blacklisté l'Algérie
 - https://www.vantagemarkets.com
