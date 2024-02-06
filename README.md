@@ -28,8 +28,7 @@ TikTok Channels
 
 Telegram
  
-- https://t.me/+pDUvIGfAclszY2E0 GOLD
-- https://t.me/+2iOTSnOTJaRhN2Y5 GOLD
+- https://t.me/+pDUvIGfAclszY2E0 Community focused on GOLD
 
 Liens à classer
 --
