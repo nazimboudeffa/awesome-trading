@@ -48,5 +48,5 @@ Liens à classer
 Crypto
 ---
 
-- Doge community (use a secondary official account)
-- Bot of the doge community
+- Doge community (use a secondary official account to avoid spam)
+- Bot of the doge community, yes there is a bot affected to your account
