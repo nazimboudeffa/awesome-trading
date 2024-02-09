@@ -45,6 +45,7 @@ Liens à classer
 - https://binance.com La crypto est interdite en Algérie, passible de prison
 - https://fr.everand.com/search?query=forex bouquins officiels à partager avec spliiit.com
 - https://www.myfxbook.com/fr
+- https://tradingrush.net
 
 Crypto
 ---
