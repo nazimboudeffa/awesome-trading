@@ -52,7 +52,7 @@ Crypto
 
 ATTENTION : Crypto is illegal in Algeria
 
-I use https://www.binance.com and only shitcoins and spot no trading future because of the volatility
+I use https://www.binance.com and only shitcoins NO BTC!!! and spot no trading future because of the volatility
 
 - Doge community (use a secondary official account to avoid spam)
-- Bot of the doge community, yes there is a bot affected to your account
+- Bot of the doge community, yes there is a bot affected to your account, my wallet is blocked actually
