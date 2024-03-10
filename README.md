@@ -56,3 +56,10 @@ I use https://www.binance.com and only shitcoins NO BTC!!! and spot no trading f
 
 - Doge community (use a secondary official account to avoid spam)
 - Bot of the doge community, yes there is a bot affected to your account, my wallet is blocked actually
+
+
+Pronostics
+---
+
+- https://www.ruedesjoueurs.com
+- https://babyliopronos.fr
