@@ -12,6 +12,7 @@ Where to trade
 - https://fundingpips.com/ (compte firm)
 - https://www.raisefx.com/ a blacklisté l'Algérie
 - https://www.vantagemarkets.com
+- https://raisemyfunds.co prefered prop frim of F* Le Gold
 
 Influencers
 --
