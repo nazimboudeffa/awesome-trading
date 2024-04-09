@@ -13,6 +13,7 @@ Where to trade
 - https://www.raisefx.com/ a blacklisté l'Algérie
 - https://www.vantagemarkets.com
 - https://raisemyfunds.co prefered prop frim of F* Le Gold
+- https://www.startrader.com copy auto F* Le Gold
 
 Influencers
 --
