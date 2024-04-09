@@ -64,3 +64,8 @@ Pronostics
 
 - https://www.ruedesjoueurs.com
 - https://babyliopronos.fr
+
+Paris sportifs
+---
+
+- https://bdmbet.com via Algo Prono sur telegram
