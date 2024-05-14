@@ -49,6 +49,7 @@ Liens à classer
 - https://fr.everand.com/search?query=forex bouquins officiels à partager avec spliiit.com
 - https://www.myfxbook.com/fr
 - https://tradingrush.net
+- https://www.gurufocus.com
 
 Crypto
 ---
